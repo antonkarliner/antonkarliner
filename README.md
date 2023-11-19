@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lato&weight=500&size=17&pause=1000&color=BC6632&width=500&lines=Hey!+My+name+is+Anton+Karliner.+I+developed+Timer.Coffee+app;Timer.Coffee+helps+you+brew+great+coffee.+Check+it+out!)](https://git.io/typing-svg)
+☕️☕️☕️
